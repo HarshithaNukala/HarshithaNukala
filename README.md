@@ -1,4 +1,4 @@
-# Hi there 👋 I'm Prajju 🚀
+# Hi there 👋 I'm Harshitha  🚀
 
 💻 Full Stack Developer passionate about building AI-powered products, modern web experiences, and immersive user interfaces ⚡✨
 
